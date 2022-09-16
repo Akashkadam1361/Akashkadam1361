@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Akash Kadam
 - 👀 I’m interested in Data Science and Data Analytics
-- 🌱 I’m currently learning Engineering
+- 🌱 I’m currently pursuing  Engineering
